@@ -1,1 +1,0 @@
-# GDG-Grand-Rapids.github.io
